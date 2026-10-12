@@ -1,0 +1,1 @@
+Coffee Shop image assets
